@@ -1,4 +1,4 @@
-# Hola, soy Abiel Sanchez o como algunos me conocen Abikuma
+# Hola, soy Abiel o como algunos me conocen Abikuma
 
 ¡Bienvenido a mi perfil de GitHub! Soy un desarrollador NOOB pero con muchas ganas de superarme en el desarrollo de software con python y javascript
 
