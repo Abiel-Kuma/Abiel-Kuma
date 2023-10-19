@@ -22,7 +22,7 @@ Aun en proceso pero espero iniciar mi proyecto personal a finales del 2023 y des
 
 ## ¡Hablemos!
 
-¡Me encantaría conectar contigo y colaborar en proyectos interesantes! No dudes en contactarme en abiel02sz@gmail.com o a través de https://www.instagram.com/abikuma.sz.
+¡Me encantaría conectar contigo y colaborar en proyectos interesantes! No dudes en contactarme en abiel02sz@gmail.com o a través de mis redes sociales.
 
 ¡Gracias por visitar mi perfil de GitHub!
 
